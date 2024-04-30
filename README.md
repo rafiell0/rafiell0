@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @rafiell0
+- 👀 I’m interested in creating games and applications. I am ready to work for a small fee (~$1)
+- 🌱 I’m currently learning python. I’m already know java, Кумир.
+- 💞️ I’m looking to collaborate with my friends.
+- 📫 You can reach me on my disord - ilikenekoarc.
+- 😄 Pronouns: rafi, rafiello, rafik.
+- ⚡ Fun fact: I’m 14 years old.
